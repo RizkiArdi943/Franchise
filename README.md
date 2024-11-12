@@ -1,1 +1,2 @@
 # Franchise
+Mohamad Rizki Ardiansyah
